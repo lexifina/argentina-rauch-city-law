@@ -1,0 +1,13 @@
+Ordenanza Nº1308
+Ordenanza Nº 1308
+Rauch, 03/04/2019
+Visto el convenio suscrito entre la Secretaria Nacional de Niñez Adolescencia y Familia, representada por el Licenciado Gabriel Enrique CASTELLI y la Municipalidad de Rauch representada por su Intendente Maximiliano SUESCUN, La Ley Orgánica de las Municipalidades; y
+Considerando Que el Convenio, propiciado por la Dirección Nacional de Políticas para Adultos Mayores, tiene como objetivo la implementación de un Proyecto denominado “Pacto de Expectativas”, a fin de garantizar la refacción y equipamiento necesarios para el Centro de Día “Bernandino Rivadavia” logrando instalaciones adecuadas para el normal desempeño de las actividades para las persones mayores que allí concurren.
+Que la ejecución del Proyecto se desarrollara en un plazo de siete (7) meses. Las actividades deberán iniciarse dentro de los sesenta (60) días contados a partir de la fecha de pago del presente subsidio.
+Que la Secretaria se compromete a trasferir a la Municipalidad un monto total de PESOS
+SETECIENTOS CINCUENTA Y CUATRO MIL SETECIENTOS CUATRO CON OCHENTA Y
+OCHO CENTAVOS ($754.704,88-) en concepto de Subsidio no Reintegrable sujeto a rendición de cuentas, para cubrir los gastos correspondientes a la ejecución de las líneas de acción del Proyecto. La suma mencionada será abonada en un solo pago.
+Que la Municipalidad tendrá las siguientes obligaciones generales que emanan del Convenio suscripto, a) Dar inicio a las actividades de conformidad con lo reglado; b) Efectuar el seguimiento y monitoreo del Proyecto; c) Presentar a la Secretaria la información de inicio requerida por el Programa, y la planificación de las actividades previo a su inicio. Un informe de avance según los requerimientos del Programa dentro de los primeros sesenta (60) días de iniciada la ejecución; d) La Municipalidad declara conocer lo reglado por Ley N° 2458/04 y lo establecido en el Convenio suscripto; e) Remitir, dentro de los sesenta (60) días de finalizadas las actividades, toda la documentación correspondiente a la Rendición de Cuentas; f) Llevar una contabilidad por separado de ingreso y egreso de los fondos transferidos por el proyecto,; g) Efectuar, ante la Unidad Propiciante, la rendición de cuentas documentada de la inversión de los fondos que recibiere; h) Conservar debidamente archivada por el termino de diez (10) años, la documentación original respaldatoria de la inversión realizada de los fondos otorgados; i) Utilizar los fondos en la ejecución del Proyecto denominado “Pacto de Expectativas”; j) Asistir a todas las actividades convocadas por la Secretaria;
+Por todo ello el Honorable Concejo Deliberante, acuerda y sanciona la siguiente:
+Ordenanza
+ORDENANZA
