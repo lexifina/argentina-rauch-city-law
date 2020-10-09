@@ -1,0 +1,1 @@
+Artículo 1: Fíjese en la suma de pesos DIECISIETE MIL CIENTO SETENTA Y NUEVE ($ 17.179,00) el sueldo básico mínimo para los agentes municipales mayores de dieciocho años de edad que cumplan el horario normal de treinta y cinco hora semanales en la Administración Municipal.-
