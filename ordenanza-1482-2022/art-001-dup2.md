@@ -1,0 +1,1 @@
+Artículo N°1: Fíjese para la Categoria 6 del personal obrero la suma de pesos TREINTA Y CINCO MIL SETENTA Y UNO ($ 35.071,00) el sueldo básico mínimo para los agentes municipales mayores de dieciocho años de edad que cumplan el horario normal de treinta y cinco horas semanales en la Administración Municipal, según lo establecido en la Escala de Sueldos para el Ejercicio 2022.-

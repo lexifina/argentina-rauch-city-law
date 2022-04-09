@@ -1,0 +1,1 @@
+Artículo N°3: Fijase la Bonificación por antigüedad en un porcentaje del 3 % en forma mensual por año de servicio hasta el 31 de diciembre de 1995 y del 1% a partir de esa fecha para todo el personal incluido o no en el estatuto del empleado municipal, o Convenio Colectivo de Trabajo.-
