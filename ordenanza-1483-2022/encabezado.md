@@ -1,0 +1,15 @@
+Ordenanza Nº1483/22
+Ordenanza Nº 1483/22
+Rauch, 25/01/2022
+Visto la Ordenanza 1466/21 que constituye el marco normativo del programa “Venta de 21 Lotes Municipales”; el expediente I-179-12-21 por el que se elevaron 398 expedientes de solicitudes de particulares a consideración de éste Honorable Concejo Deliberante; La Ley Orgánica de las Municipalidades; y,
+Considerando Que la vivienda implica el componente básico de los factores que integran la calidad de vida de las familias de nuestro pueblo.
+Que nuestra ciudad cuenta con muchas familias y vecinos que padecen la falta de vivienda propia.
+Que el gobierno Municipal se ha planteado como objetivo puntual ir dando respuesta al problema del Acceso a la Tierra y a la Vivienda.
+Que en ese sentido se han ido generando Programas y Planes Municipales, entre los que se pueden mencionar el “Loteo Quinta Arleo”, la regularización de la “Quinta Cremona”, el Plan Compartir 1ra y 2da Etapa, Construcción de viviendas para Docentes afiliados a Suteba y Uder, Plan de 27 Viviendas de Construcción en Seco, Barrio de Policías, Plan Federal de Viviendas, entre otros.
+Que la Ordenanza 1331/19 creo el Programa “Mi Terreno en Mi Ciudad”, herramienta que permite adquirir terrenos a un valor de diez (10) Salarios Mínimos Vitales y Móvil, y que dicho valor sea abonado en cuotas mensuales, de hasta un 10% de los ingresos del adjudicatario.
+Que con la sanción de la Ordenanza 1466/21 se buscó continuar ese camino, autorizando al Departamento Ejecutivo a la venta de veintiún (21) lotes, a un valor establecido entre veinte (20) y veinticinco (25) Salarios Mínimos Vitales y Móvil, a fin de que el valor resultante sea menor al valor de mercado.
+Que a tal fin, se ha procedido al análisis pormenorizado de cada una de las 398 carpetas elevadas, y a partir de ello, se concluyó que 394 carpetas corresponde su aprobación por cumplir con todos los requisitos; y otras 4 carpetas en las cuales también hubo acuerdo, en que no cumplen con al menos uno de los requisitos mínimos del programa, por lo que dichas solicitudes han sido desestimadas.
+Que al mismo tiempo, y a causa de no contar con toda la información necesaria en cada uno de los expedientes, los concejales han acordado facultar al Departamento Ejecutivo a publicar los Anexos de la presente, a recibir, analizar y resolver impugnaciones y/o observaciones que a ambos anexos los interesados puedan formular, en cuanto a cumplimiento o no de los requisitos establecidos, con el objeto de que haya una instancia donde los interesados puedan presentar documentación complementaria.
+Que por otra parte, y a raíz del altísimo grado de aceptación y participación por parte de los vecinos de Rauch, y luego de acordarlo con el Departamento Ejecutivo, por medio de la presente se amplía en veintiséis (26) lotes de terreno la propuesta originaria, por lo que en lugar de veintiuno (21) lotes son cuarenta y seis (46) los lotes de terreno que serán puestos a la venta.
+Por todo ello este Honorable Concejo Deliberante acuerda y sanciona la siguiente:
+ORDENANZA
