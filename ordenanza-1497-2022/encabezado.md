@@ -1,0 +1,30 @@
+Ordenanza Nº1497/22
+Ordenanza Nº 1497/22
+Rauch, 31/05/2022
+VISTO: La Rendición de Cuentas del Ejercicio 2021 presentada por el Departamento Ejecutivo al Honorable Concejo Deliberante de Rauch.
+El artículo 67 de la Ley Orgánica de las Municipalidades.
+El articulo 26 inc b) de las Disposiciones de Administración para los Recursos Financieros y Reales para los Municipios en el Marco del Decreto 2980/00.
+El listado de Ejecución del Presupuesto de Gastos por Economías y Excesos de la fuente de financiamiento 110 - Tesoro Municipal.
+El Listado de Ejecución del Presupuesto de Gastos por Economías y Excesos de la fuente de financiamiento 210 – transferencias Internas.
+Los artículos 41 y 43 de la Ley de Presupuesto Provincial 15.310.
+El Convenio específico con la Secretaria de Vivienda del Ministerio del Interior, Obras Públicas y Vivienda respecto al acuerdo con el Plan Nacional de Vivienda suscripto con la Municipalidad de Rauch.
+CONSIDERANDO: Que de acuerdo al Convenio suscripto, el Municipio debe ejecutar la obra denominada “Treinta (30) Viviendas e Infraestructura en la Localidad de Rauch”, conforme los parámetros establecidos en el reglamento que rige el Plan y sus normas complementarias.
+Que para su financiamiento se transferirán un millón ciento treinta y tres mil cuatrocientas sesenta y seis con cuarenta (1.133.466,40) UVIS (unidades de Vivienda), equivalentes a pesos treinta y cuatro millones ochocientos ocho mil setecientos cincuenta y tres con trece centavos ( $ 34.808.753,13) según valores de referencia al 31/12/2018.
+Que en este sentido, el Fideicomiso interviniente financia el 66,6 % de la obra, en tanto el 33,3 % restante, lo debe hacer la Municipalidad.
+Que el monto a desembolsar, según la cláusula quinta del convenio, se efectúa contra la presentación de los correspondientes certificados de obra que acrediten la efectiva ejecución de la misma, por lo que el Municipio sin haber recibido anticipo financiero, debió comenzar con el proceso de adquisición de los materiales y la contratación de la mano de obra.
+Que fue necesario ir almacenando determinados bienes como por ejemplo revestimientos, mesadas, aberturas, grifería, sanitarios y pintura por nombrar alguno de los elementos adquiridos, en pos de mejorar los precios finales y su congelamiento.
+Que asimismo es necesario disponer de los materiales para poder entregar los mismos a los contratistas, a fin de lograr el avance físico necesario, que permita realizar las certificaciones de obra, para continuar con el proceso de adquisición.
+Que de esta manera, al cierre de ejercicio están pendiente de pago los certificados N° 23, N° 24, N° 25 y N° 26 ascendiendo a un total de pesos ocho millones seiscientos setenta y cuatro mil ochenta y dos con cincuenta y tres centavos ($ 8.674.082,53).
+Que este descalce financiero sumado también a la demora en el giro de los fondos para el financiamiento de otras obras públicas, a las cuales se les ha dado inicio, ha provocado excesos presupuestarios, dado que al no percibir los fondos afectados respectivos, no se debe amplía el Caculo de Recursos respectivo.
+Que por ello resulta necesario proceder a utilizar las facultades otorgadas a este cuerpo Deliberativo por el artículo 67 de la Ley Orgánica de las Municipalidades, conforme lo solicitado por el Departamento Ejecutivo.
+Que en este sentido, dicha normativa dispone que el Concejo Deliberante estará facultado para compensar excesos producidos en partidas del presupuesto por gastos, que estime de legítima procedencia hasta un monto igual al de las economías realizadas sobre el mismo presupuesto, o con excedentes de recaudación y con el saldo disponible que registre antes de efectuar las operaciones de cierre del ejercicio, la cuenta “Resultado de Ejercicios”.
+Que en igual sentido, el artículo 41 de la Ley N° 15.310 de Presupuesto Provincial dispone “Que los Municipios que presenten excesos presupuestarios al cierre del ejercicio 2021 y no puedan compensarlos con excedentes de recaudación, economías provenientes del mismo presupuesto o saldos disponibles que registre la cuenta “Resultados de Ejercicios”, podrán solicitar a sus respectivos Concejos Deliberantes la convalidación de tales extralimitaciones. Convalidadas que fueran estas circunstancias, el Tribunal de Cuentas de la Provincia de Buenos Aires no impondrá sanciones previstas en la normativa vigente.
+Que considerando el listado de Ejecución del Presupuesto de Gastos, Economías-Excesos, para la fuente de financiamiento 110 - Tesoro Municipal, se producen economía por la suma de pesos trescientos sesenta y nueve mil trescientos diecisiete con setenta y siete centavos ($ 369.317,77).
+Qué asimismo, de dicho listado mencionado precedentemente, surge que se han producido excesos presupuestarios por la suma de once millones seiscientos veinticuatro mil cuarenta y dos con cuarenta y ocho centavos ($ 11.624.042,48).
+Que esta sobre ejecución se produce en la Secretaria de Obras y Servicios Públicos, en el programa “24.65.00 PNV-30 Viviendas”.
+Que de igual modo, y por un error involuntario, se le imputo a la fuente de financiamiento 210 – Transferencias Externas un gasto que debía haberse financiado con recursos propios, en la suma de cinco mil cinco con catorce centavos ($ 5105,14).
+Que las economías presupuestarias y en el marco de lo establecido por el artículo citado pueden ser utilizadas para disminuir las sumas indicadas como excedente de ambas fuentes de financiamiento, quedando en definitiva la ejecución presupuestaria con excesos en su ejecución por pesos once millones doscientos cincuenta y nueve mil ochocientos veintinueve con ochenta y un centavos ($ 11.259.829,81).
+Que por ello, se procede a compensar hasta la suma de pesos trescientos sesenta y nueve mil trescientos diecisiete con setenta y siete centavos ($ 369.317,77).
+Que de igual modo, se solicita la convalidación del excedente en la suma once millones doscientos cincuenta y nueve mil ochocientos veintinueve con ochenta y un centavos ($ 11.259.829,81).
+Por ello el Honorable Concejo Deliberante de Rauch, en uso de las atribuciones que le son propias, sanciona la siguiente:
+ORDENANZA
