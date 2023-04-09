@@ -1,0 +1,13 @@
+Ordenanza Nº1529/22
+Ordenanza Nº 1529/22
+Rauch, 06/12/2022
+Visto los complejos habitacionales que el Municipio de Rauch destina a casa habitación de personas adultas mayores; los artículos 14 bis y 75 inc. 22 de la Constitución Nacional; la Convención Interamericana sobre la Protección de los Derechos Humanos de las Personas Mayores; y
+Considerando Que por medio de la Convención antes mencionada se insta a los Estados Parte y a los demás actores vinculados en la materia a cooperar en miras a la protección y promoción de los derechos de la persona mayor y de su desarrollo integral.
+Que la referida Convención pone en cabeza de los Estados Parte la adopción de políticas de promoción del derecho a la vivienda, reconociendo las necesidades de la persona mayor y la prioridad en la asignación a aquella que se encuentre en situación de vulnerabilidad.
+Que los mencionados complejos habitacionales conjuntamente con los Centros de Día brindarán servicios socio-sanitarios;
+Que en lo que aquí respecta, sobre la base de la normativa habitacional vigente en la materia, resulta necesario establecer nuevos mecanismos de abordaje que conlleven acciones organizadas tendientes a brindar una solución habitacional equitativa, a través de la implementación de modalidades de gestión destinadas a la disminución de la vulnerabilidad social en articulación con otros actores territoriales;
+Que dichos mecanismos deben centrarse en el concepto del envejecimiento activo de la persona mayor, considerando el espacio donde se habita como fundamental para la salud integral, el bienestar social y el desarrollo humano, promoviendo un espíritu cooperativo y solidario, apuntando a reforzar el sentido de pertenencia a la comunidad.
+Que el derecho a una vivienda adecuada tiene reconocimiento en los artículos citados en los Vistos, cuando se hace expreso reconocimiento al acceso a la vivienda digna.
+Que la Convención Interamericana sobre la Protección de los Derechos Humanos de las Personas Mayores en su artículo 24 plantea el Derecho a la vivienda donde manifiesta por un lado “La persona mayor tiene derecho a una vivienda digna y adecuada, y a vivir en entornos seguros, saludables, accesibles y adaptables a sus preferencias y necesidades” y por otro “Los Estados Parte deberán adoptar las medidas pertinentes para promover el pleno goce de este derecho y facilitar que la persona mayor tenga acceso a servicios socio-sanitarios integrados y servicios de cuidados domiciliarios que le permitan residir en su propio domicilio conforme a su voluntad”.
+Por todo ello éste Honorable Concejo Deliberante acuerda y sanciona la siguiente:
+ORDENANZA
