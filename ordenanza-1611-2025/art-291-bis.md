@@ -1,0 +1,1 @@
+Artículo N° 291 bis: Se deja establecido que el 50% de todo lo que se recaude en el transcurso del presupuesto 2025 deberá afectarse a inversiones en equipamiento para el sistema de monitoreo en el ámbito rural, con su debida ejecución al cierre del ejercicio económico.
