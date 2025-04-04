@@ -1,0 +1,13 @@
+Ordenanza Nº1610/24
+Ordenanza Nº 1610/24
+Rauch, 18/12/2024
+Visto El Decreto N°956/24 que efectua un reconocimiento a aquellos contribuyentes de la Tasa por Alumbrado que abonan la misma mediante la factura expedida por la Empresa EDEA S.A. y que abonaron durante los bimestres correspondientes a Septiembre – Octubre y/o Noviembre – Diciembre de 2024, sumas superiores a las que hubiese correspondido a la “Segunda categoría: Iluminación por medio de lámparas LED con cinco (5) o seis (6) lámparas por cuadra” de alumbrado en un todo de acuerdo a lo determinado en la Ordenanza Impositiva vigente, incrementada en un CIEN POR CIENTO (100 %) y calculada para un inmueble de diez (10) metros de frente.
+Considerando que lo dispuesto en dicho convenio y normativa establecen un sistema de cálculo de dicha tasa en función de distintos porcentajes (según tipo de usuario de la energía) sobre el valor de la energía consumida.
+Que los incrementos muy significativos producidos en el último tiempo, en las tarifas de energía eléctrica, produce un impacto muy importante y gravoso en el monto a pagar de la Tasa por Alumbrado Público en un grupo de contribuyentes, comerciantes e industriales, caracterizado por la alta dependencia o significativa utilización de la energía eléctrica en el desarrollo de su actividad.
+Que, es necesario corregir dicho impacto, dada las sumas que deben abonar estos contribuyentes que son grandes consumidores de energía eléctrica, porque se trata de sumas que alcanzan valores injustificados, que afectan de manera significativa la actividad de comerciantes que ya se encuentran afectados por una coyuntura económica compleja.
+Que, lo facturado por la empresa EDEA S.A. a dichos contribuyentes difiere significativamente de lo que deberían abonar si dichos contribuyentes pagaran la Tasa por Alumbrado en un todo de acuerdo a lo estipulado en la Ordenanza Impositiva vigente.
+Que, es necesario realizar un reconocimiento por parte del Municipio para atenuar el desequilibrio que se produce entre lo facturado por EDEA S.A. y lo que correspondería si se efectuara el cálculo en función de la Ordenanza Impositiva;
+Que, amén de que los Comercios pueden computar un porcentaje de lo abonado en concepto de Ley 10740 como pago a cuenta de la Tasa por Inspección de Seguridad e Higiene, la diferencia sigue siendo importante;
+Que mediante Decreto N° 788/24 se estableció ampliar excepcionalmente los beneficios establecidos en la Ordenanza 1590/24, hasta el 30 de noviembre inclusive; para aquellos contribuyentes que acrediten el beneficio de la ley 10740.
+Por todo ello, el Honorable Concejo Deliberante del Partido de Rauch, acuerda y sanciona la siguiente:
+ORDENANZA
