@@ -1,0 +1,1 @@
+Artículo Nº 291 ter: Establécese que el restante cincuenta por ciento (50%) de todo lo que se recaude en concepto de Contribución a la Seguridad Ciudadana durante el Ejercicio Fiscal 2026 podrá asignarse a cualquier tipo de gasto relacionado con la seguridad.

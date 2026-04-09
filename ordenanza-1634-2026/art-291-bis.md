@@ -1,0 +1,1 @@
+Artículo Nº 291 bis: Establécese que el cincuenta por ciento (50%) de todo lo que se recaude en concepto de Contribución a la Seguridad Ciudadana durante el Ejercicio Fiscal 2026 deberá afectarse a inversiones en equipamiento para el sistema de monitoreo en el ámbito rural, debiendo garantizarse su ejecución efectiva al cierre del ejercicio económico.

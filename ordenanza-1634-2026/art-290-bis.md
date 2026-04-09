@@ -1,0 +1,1 @@
+Artículo Nº 290 bis: Establécese que el cincuenta por ciento (50%) de todo lo que se recaude en concepto de Contribución Especial Hospital Municipal durante el Ejercicio Fiscal 2026 podrá asignarse a cualquier tipo de gasto relacionado con la salud.
