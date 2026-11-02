@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-rauch",
+  "code": "AR-B-RAUCH",
+  "name": "Rauch",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-rauch-city-law",
+  "build": "built: municipal ordinances (198 ordinances, 198 versions) from https://sibom.slyt.gba.gob.ar/cities/103",
+  "language": "es",
+  "sources": 1
+}
